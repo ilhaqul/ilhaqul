@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ilhaqul
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning many things about coding
-- 📫 How to reach me https://www.linkedin.com/in/yusfar-ilhaqul-choer-a506ab109/
+- 📫 How to reach me https://www.linkedin.com/in/yusfarilhaqul
